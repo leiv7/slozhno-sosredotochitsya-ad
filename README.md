@@ -1,1 +1,1 @@
-https://github.com/SkromnayaDeffchonka/slozhno-sosredotochitsya-ad
+https://github.com/leiv7/slozhno-sosredotochitsya-ad
